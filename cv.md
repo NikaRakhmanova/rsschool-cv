@@ -1,7 +1,7 @@
 # Nika Rakhmanova
 ## Contact Info
 - nikalaus28@gmail.com
-- +380987156962
+- +38(098)715-69-62
 - [Facebook](https://www.facebook.com/rakhmanova.nika/)
 ## Summary
 Self-motivated, creative, interested to details
